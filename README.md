@@ -1,2 +1,2 @@
 # Dreams
-This is drema are compalet in 2025.
+This is dream are compalet in 2025.
